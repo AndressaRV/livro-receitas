@@ -1,4 +1,5 @@
-Lol
-Lol
-Lol
-Bemvindodasdiada
+# Livro de Receitas :woman_cook:
+
+Olá! Bem vindo ao meu livro de receitas :wave:
+
+- Risoto de Camarão
